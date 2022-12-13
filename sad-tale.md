@@ -7,3 +7,6 @@ happily ever after...  He definitely didn't get axe murdered.
 
 
 some more...
+
+Joffrey Baratheon was the one to do Ned in, but his story was only about to
+begin, and let me assure you he will ___DEFINITELY NOT DIE!___
