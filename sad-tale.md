@@ -10,3 +10,6 @@ some more...
 
 Joffrey Baratheon was the one to do Ned in, but his story was only about to
 begin, and let me assure you he will ___DEFINITELY NOT DIE!___
+
+But then, all of sudden, Muad'dib appears from a distant land atop Shai'hulud and swallows King's Landing whole! and the seven kingdoms begin their process of desertification and spice production. THE SPICE MUST FLOW!!!
+
